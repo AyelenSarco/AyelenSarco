@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on **Java / Spring Boot projects** and backend-focused applications.
 - 🤔 I’m looking for help with improving my **software architecture and clean code practices**.
 - 🎮 Hobbies: **game development, drawing, and 3D modeling**.
-- 📫 How to reach me: **LinkedIn**
+- 📫 How to reach me: www.linkedin.com/in/ayelen-sarco 
 - 😄 Pronouns: **she/her**
 - ⚡ Fun fact: **Dogs are the best thing in the world 🐶**
 
