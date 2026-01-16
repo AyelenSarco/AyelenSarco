@@ -6,4 +6,4 @@
 - 🎮 Hobbies: **drawing, 3D modeling, and trying to get back into game development**.
 - 📫 How to reach me: www.linkedin.com/in/ayelen-sarco 
 - 😄 Pronouns: **she/her**
-- ⚡ Fun fact: **Dogs are the best thing in the world 🐶**
+- ✨ Fun fact: **Dogs are the best thing in the world 🐶 and Harry Potter is the best saga ever. ⚡**
